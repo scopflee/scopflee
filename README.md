@@ -1,0 +1,3 @@
+- 💕 just scop itself is great
+- ❄️ just trying to download things
+- ……]((o_ _)'彡☆
